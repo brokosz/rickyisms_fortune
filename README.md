@@ -1,0 +1,1 @@
+# rickyisms_fortune
